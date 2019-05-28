@@ -1,4 +1,4 @@
-![](we want you.png)
+![](wewantyou.png)
 
 Antes de nada perdón a quien le llegue la oferta repetida por varias listas de
 correo, señal de que os queremos el doble :-)
